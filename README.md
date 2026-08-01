@@ -1,4 +1,4 @@
-# self-orchiecto
+<img width="594" height="1287" alt="image" src="https://github.com/user-attachments/assets/0016074a-e4e4-4bd3-95ec-45d9602159b6" /># self-orchiecto
 唐毓文版自切教程
 > 本文档可能含有**裸露、生殖器、血液、开放性创口及离体组织**等敏感医学影像，仅用于记录个人经历。**不具有色情目的**，也不构成任何形式的医疗建议或操作指导。相关内容可能引起**强烈不适**，请谨慎浏览；**请勿模仿、实施或传播**其中的操作性内容。
 
@@ -214,7 +214,9 @@
 挤出后大概这样：
 
 ```
-（示意图省略——一根精索连接着睾丸）
+<img width="594" height="1287" alt="image" src="https://github.com/user-attachments/assets/a040e6dd-79ef-44b9-bc15-fa818ce22146" />
+
+
 ```
 
 稍微再拽出一点，可以看到一个大概**3cm、一个指节半长度的厚肉管**——那就是**精索**。
@@ -253,7 +255,8 @@
 正确的止血后流血量大概如图，卸载的蛋蛋大概也如图：
 
 ```
-（示意图省略——看起来多，其实混杂了生理盐水）
+<img width="594" height="1287" alt="image" src="https://github.com/user-attachments/assets/474c8ce1-2b65-49ce-8c78-ca4b9e58b184" />
+
 ```
 
 这些血看起来很多，其实**混杂了生理盐水**，而且即便这样也不多。
