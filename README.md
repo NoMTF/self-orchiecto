@@ -1,4 +1,4 @@
-<img width="594" height="1287" alt="image" src="https://github.com/user-attachments/assets/0016074a-e4e4-4bd3-95ec-45d9602159b6" /># self-orchiecto
+# self-orchiecto
 唐毓文版自切教程
 > 本文档可能含有**裸露、生殖器、血液、开放性创口及离体组织**等敏感医学影像，仅用于记录个人经历。**不具有色情目的**，也不构成任何形式的医疗建议或操作指导。相关内容可能引起**强烈不适**，请谨慎浏览；**请勿模仿、实施或传播**其中的操作性内容。
 
